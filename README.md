@@ -1,4 +1,8 @@
 
+# Hey Everyone! I'm [Chaitu](https://github.com/Schaitu2002) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+<br></br>
+
+
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/http://www.linkedin.com/in/chaitanya-suru-a094b81b7) 
 
